@@ -1,6 +1,5 @@
 # Jayvik-Labs-Day-1
 
-![Uploading ChatGPT Image Oct 11, 2026, 02_59_21 PM.png…]()
 
 
 1. FIVE IMPORTANT ASSETS
